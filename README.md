@@ -3,6 +3,8 @@
 
 
 ## Popular arches in Red River Gorge
-! [Natural Bridge](https://live.staticflickr.com/65535/47966558966_d0230e13b7_o.jpg)
+[Link to GeoPDF](basemap/rrg-arches.pdf)
+
+![Natural Bridge](https://live.staticflickr.com/65535/47966558966_d0230e13b7_o.jpg)
 photograph by boydx
 
