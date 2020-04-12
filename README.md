@@ -1,2 +1,8 @@
 # rrg3
-Popular arches in Red River Gorge
+# DO NOT VISIT THE RRG UNTIL BAN IS LIFTED
+
+
+## Popular arches in Red River Gorge
+! [Natural Bridge](https://live.staticflickr.com/65535/47966558966_d0230e13b7_o.jpg)
+photograph by boydx
+
